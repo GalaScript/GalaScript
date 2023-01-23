@@ -1,30 +1,19 @@
-¡Hola a todos! Mi nombre es Gala Torres y soy una experta en el mundo de la blockchain con más de 5 años de experiencia. ¡Sígueme en mi perfil de GitHub para conocer más sobre mi trabajo y experiencia!
+👋 ¡Bienvenidos a mi perfil de Github! Mi nombre es Gala Torres y llevo más de 5 años en el mundo de la blockchain. ¡Echa un vistazo a mi experiencia y proyectos!
 
-🔥 Comencé mi carrera en el trading de criptomonedas y luego me especialicé en el arte de los NFT y los videojuegos NFT.
+🔥 Comencé en el trading de criptomonedas, luego me enamoré del arte NFT y los videojuegos NFT.
 
-💬 Soy moderadora de grupos de criptomonedas y genero contenido informativo sobre el mundo de las criptomonedas.
+💬 Fui moderadora de grupos de criptos y generé contenido informativo sobre el mundo de las criptomonedas.
 
-💻 Me especialicé en minería de bitcoin ecológica mediante el uso de diélectrico de aceite.
+💻 Me especialicé en minería de bitcoin ecológica y soy una teletrabajadora.
 
-💻 Actualmente soy una teletrabajadora y escribo contenido sobre tecnología y actualidad.
+🚀 ¡No te pierdas mi perfil de GitHub para conocer más sobre mi trabajo y experiencia!
 
-🚀 ¡Únete a mi comunidad en GitHub y conoce más sobre mis habilidades y proyectos!
+👋 Welcome to my GitHub profile! My name is Gala Torres and I have been in the blockchain world for more than 5 years. Check out my experience and projects!
 
-👀 ¡Echa un vistazo a mi perfil en GitHub para conocer más sobre mi experiencia en blockchain y criptomonedas!
+🔥 I started with cryptocurrency trading and then fell in love with NFT art and NFT video games.
 
+💬 I used to moderate cryptocurrency groups and create informative content about the cryptocurrency world.
 
+💻 I specialize in eco-friendly Bitcoin mining and I am a teleworker.
 
-Hi everyone! My name is Gala Torres and I am an expert in the blockchain world with over 5 years of experience. Follow me on my GitHub profile to learn more about my work and experience!
-
-🔥 I started my career in cryptocurrency trading and then specialized in NFT art and NFT video games.
-
-💬 I am a moderator of cryptocurrency groups and generate informative content about the world of cryptocurrencies.
-
-💻 I specialize in ecological Bitcoin mining using oil dielectrics.
-
-💻 Currently I am a teleworker and write content about technology and current events.
-
-🚀 Join my community on GitHub and learn more about my skills and projects!
-
-👀 Check out my profile on GitHub to learn more about my experience in blockchain and cryptocurrency!
-
+🚀 Don't miss out on my GitHub profile to learn more about my work and experience!
